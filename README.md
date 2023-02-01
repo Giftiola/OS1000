@@ -1,1 +1,1 @@
-Darijo
+Darijo Tepic
